@@ -1,8 +1,3 @@
 # goblinbanjar
 Tolong dirumah aja
-Ssssssddjdjxbosksbdixjsndkjcksksndkxndosmksndodndkdndkdnsksnosnsndkdnd
-Ddodmdndokdndkdndkddd
-Ddndkdndksdodjdbidd
-Dbdkdkdnbdkdjsbsosbdodbjss
-Bdodidkdbdodjd
-Maksih bossq
+ARAFIK BANGSAT
